@@ -1,1 +1,1 @@
-# khan1
+# khan1 by me understood
